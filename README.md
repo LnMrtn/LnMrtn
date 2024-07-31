@@ -1,5 +1,2 @@
-Creator of games
-
-You can find my links to other profiles here https://linktr.ee/LoneMartian
-
-!! DO NOT SPAM OTHERWISE YOU'LL BE BLOCKED !!
+Hello! My name is LoneMartian, and I creates games during my free time.
+I hope you enjoy these games as much as I did creating them! :) :) ;)
